@@ -1,4 +1,4 @@
-[![pinterest.com/pin/109817...](https://images.openai.com/thumbnails/url/wacFcnicu1mSUVJSUGylr5-al1xUWVCSmqJbkpRnoJdeXJJYkpmsl5yfq5-Zm5ieWmxfaAuUsXL0S7F0Tw72zA3MSwvMcc3Od_JNKi8sqiw38vUsiSxNN6xMy8z1TU7XDbHMdvdOKXMJdY8MM8rxqQhKLXJNTfL2K1crBgBJsisL)](https://www.pinterest.com/pin/1098174690386087978/)
+[![pinterest.com/pin/109817...](https://pin.it/3oOESobjg)
 
 ---
 
