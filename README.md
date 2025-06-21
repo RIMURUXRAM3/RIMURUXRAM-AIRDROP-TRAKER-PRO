@@ -1,6 +1,7 @@
 # 📡 RIMURUXRAM AIRDROP TRACKER PRO
 
-![Rimuru Tempest]https://i.pinimg.com/736x/15/74/2f/15742f11b19849a8a389fabc94457981.jpg)
+![Rimuru Tempest]([https://i.pinimg.com/736x/99/90/d5/9990d5e37eafc2f76fcb5d5e5f20e5a2.jpg](https://i.pinimg.com/736x/15/74/2f/15742f11b19849a8a389fabc94457981.jpg))
+
 <sub>*Rimuru Tempest – inspirasi kekuatan & strategi dalam berburu airdrop*</sub>
 
 ---
