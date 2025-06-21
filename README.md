@@ -1,4 +1,4 @@
-[![pinterest.com/pin/109817...](https://pin.it/3oOESobjg)
+![Rimuru Tempest](https://i.pinimg.com/736x/99/90/d5/9990d5e37eafc2f76fcb5d5e5f20e5a2.jpg)
 
 ---
 
